@@ -1,1 +1,1 @@
-# Temp for save homework1 pictures
+# Temp for saving homework1 pictures
